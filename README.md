@@ -1,1 +1,0 @@
-# USSR_Slav.github.io
